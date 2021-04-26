@@ -1,0 +1,1 @@
+kesimpulan versi 2
